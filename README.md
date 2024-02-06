@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **manolitojraquino0416@gmail.com**
 
-- ⚡ Fun fact ** ̶F̶i̶f̶t̶y̶ ̶p̶e̶r̶c̶e̶n̶t̶ ̶o̶f̶ ̶m̶e̶ ̶a̶l̶r̶e̶a̶d̶y̶ ̶r̶e̶g̶r̶e̶t̶ ̶p̶u̶r̶s̶u̶i̶n̶g̶ ̶d̶a̶t̶a̶ ̶s̶c̶i̶e̶n̶c̶e̶ ̶b̶e̶c̶a̶u̶s̶e̶ ̶e̶v̶e̶r̶y̶t̶h̶i̶n̶g̶ ̶a̶b̶o̶u̶t̶ ̶i̶t̶ ̶i̶s̶ ̶h̶e̶l̶l̶  I am really happy studying Data Science😂**
+- ⚡ Fun fact ** ̶F̶i̶f̶t̶y̶ ̶p̶e̶r̶c̶e̶n̶t̶ ̶o̶f̶ ̶m̶e̶ ̶a̶l̶r̶e̶a̶d̶y̶ ̶r̶e̶g̶r̶e̶t̶ ̶p̶u̶r̶s̶u̶i̶n̶g̶ ̶d̶a̶t̶a̶ ̶s̶c̶i̶e̶n̶c̶e̶ ̶b̶e̶c̶a̶u̶s̶e̶ ̶e̶v̶e̶r̶y̶t̶h̶i̶n̶g̶ ̶a̶b̶o̶u̶t̶ ̶i̶t̶ ̶i̶s̶ ̶h̶e̶l̶l̶  I am really happy studying Data Science <3**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
